@@ -2,7 +2,7 @@
 - 👀 I’m interested in data and business
 - 🌱 I’m currently learning data analysis
 - 💞️ I’m looking to collaborate on business performance and strategy
-- 📫 How to reach me: LinkedIn: in/marianatognetti/
+- 📫 How to reach me: in/marianatognetti/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Boxe and jiu jitsu lover!
 
